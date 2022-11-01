@@ -1,4 +1,4 @@
 # Accesibility
 read for no cost
 
-www.devforum.roblox.com
+https://geometrydash-free.com/html.games
